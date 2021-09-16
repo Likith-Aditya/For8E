@@ -1,2 +1,2 @@
 # For8E
-Good job lol
+just download the html file and click it
